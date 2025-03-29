@@ -55,3 +55,5 @@ Mod lại về CTC
 
 
 ![](./_/jx1m-04.jpg)
+
+Pass: https://fb.com/groups/volamquan or 123 or 123456
